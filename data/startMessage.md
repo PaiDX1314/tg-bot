@@ -1,1 +1,3 @@
-看到消息会第一时间回复！没回复就代表在忙或者不在线，谢谢！
+Please leave a message. I'll reply soon！
+
+有事请留言，我会尽快回复！
